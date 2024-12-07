@@ -1,4 +1,10 @@
-<a href="https://l24.im/gpUR">Casibom.com</a>
+#  <a href="https://l24.im/gpUR">Casibom.com</a>
+
+
+<meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+</head>
+<body>
 
  <a href="https://l24.im/gpUR"><img src="https://resmim.net/cdn/2024/10/07/mQocaj.png" 
 alt="resim yükle" border="0" /></a>  
